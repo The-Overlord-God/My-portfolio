@@ -1,6 +1,6 @@
 # My Building Journey
 
-I am Md Althaf, a 17 year old self taught builder from Indore, India.
+I am Md Althaf, a 18 year old self taught builder from Indore, India.
 
 My journey started very early tbh. From childhood I was always curious how things work. I used to open electronics at home — mobiles, toys and whatever I could find 😅 sometimes even things I probably shoudnt open lol. I made simple cars using batteries and small motors. I was really fascinated by science experiments I saw on YouTube.
 
